@@ -1,0 +1,3 @@
+remote_theme: mmistakes/minimal-mistakes
+title: Galaxy NGC 891
+include: ["_pages"]
