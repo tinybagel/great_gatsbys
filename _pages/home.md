@@ -5,4 +5,4 @@ author_profile: true
 ---
 
 ______________________________________
-## *Welcome to Ace Jones Art & Design*
+# *Welcome to Ace Jones Art & Design*
