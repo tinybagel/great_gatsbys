@@ -9,6 +9,6 @@ author_profile: true
 >Sunflower
 >November 23, 2017
 
-![trees](/great_gatsbys/IMG_0700-EFFECTS.JPG)
+![trees](/great_gatsbys/IMG_0700-EFFECTS.jpg)
 >Nothing Gold Can Stay
 >November 23, 2017
