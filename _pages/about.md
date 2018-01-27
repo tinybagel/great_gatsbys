@@ -24,6 +24,6 @@ author_profile: true
 >November January 17, 2017
 
 
-![Lichen](great_gatsbys/IMG_1082.JPG)
+![Lichen](/great_gatsbys/IMG_1082.JPG)
 >Growth
 >November January 17, 2017
