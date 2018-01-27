@@ -6,7 +6,7 @@ author_profile: true
 ---
 ## AJA&D Photography
 ![shoes](/great_gatsbys/Take Your Mark.jpg)
->And The Roses Were Humbled.
+>Take Your Mark.
 >May 2, 2017
 
 ![rose](/great_gatsbys/And The Roses Were Humbled.JPG)
