@@ -4,5 +4,3 @@ permalink: /about/
 title: EXPLORE
 author_profile: true
 ---
-
-# Explore
