@@ -10,6 +10,11 @@ author_profile: true
 >November 23, 2017
 
 
+![Sunflower](/great_gatsbys/IMG_0670.JPG)
+>Sunflower
+>November 23, 2017
+
+
 ![trees](/great_gatsbys/IMG_0700-EFFECTS.jpg)
 >Nothing Gold Can Stay
 >November 23, 2017
@@ -19,6 +24,6 @@ author_profile: true
 >November January 17, 2017
 
 
-![Lichen](/great_gatsbys/IMG_1082.jpg)
+![Lichen](great_gatsbys/IMG_1082.JPG)
 >Growth
 >November January 17, 2017
