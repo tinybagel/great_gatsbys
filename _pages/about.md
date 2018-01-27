@@ -1,6 +1,7 @@
 ---
 layout: single
 permalink: /about/
-title: EXPLORE
+title: PHOTOS
 author_profile: true
 ---
+## AJA&D Photography
