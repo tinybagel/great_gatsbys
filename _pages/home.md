@@ -3,5 +3,5 @@ layout: single
 permalink: /
 ---
 
-   
-## *Welcome to Ace Jones Art & Design.*
+______________________________________
+## *Welcome to Ace Jones Art & Design*
