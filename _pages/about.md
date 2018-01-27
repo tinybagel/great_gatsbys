@@ -5,8 +5,8 @@ title: PHOTOS
 author_profile: true
 ---
 ## AJA&D Photography
-![rose](great_gatsbys/And The Roses Were Humbled.JPG)
->And The Roses Were humbled
+![rose](/great_gatsbys/And The Roses Were Humbled.JPG)
+>And The Roses Were Humbled
 >March 26, 2017
 
 
