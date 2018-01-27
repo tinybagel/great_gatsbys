@@ -4,4 +4,4 @@ permalink: /
 ---
 
    
-## *Welcome to Ace Jones Art & Design.
+## *Welcome to Ace Jones Art & Design.*
