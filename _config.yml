@@ -1,3 +1,7 @@
 remote_theme: mmistakes/minimal-mistakes
 title: Ace Jones Art & Design
 include: ["_pages"]
+
+author:
+  name: Ace Jones
+  avatar: "/assets/Me.jpg" 
