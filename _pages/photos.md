@@ -5,6 +5,10 @@ title: PHOTOS
 author_profile: true
 ---
 ## AJA&D Photography
+![shoes](/great_gatsbys/Take Your Mark.jpg)
+>And The Roses Were Humbled.
+>May 2, 2017
+
 ![rose](/great_gatsbys/And The Roses Were Humbled.JPG)
 >And The Roses Were Humbled.
 >March 26, 2017
@@ -27,3 +31,4 @@ author_profile: true
 ![Lichen](/great_gatsbys/IMG_1082.JPG)
 >Growth.
 >November January 17, 2017
+
