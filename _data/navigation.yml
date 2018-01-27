@@ -1,3 +1,5 @@
 main:
   - title: "PHOTOS"
     url: /about/
+      - title: "DRAWINGS"
+        url: /about/
