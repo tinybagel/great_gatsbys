@@ -5,9 +5,9 @@ title: PHOTOS
 author_profile: true
 ---
 ## AJA&D Photography
-![Sunflower](/great_gatsbys/IMG_0670.JPG)
->Sunflower
->November 23, 2017
+![rose](great_gatsbys/And The Roses Were Humbled.JPG)
+>And The Roses Were humbled
+>March 26, 2017
 
 
 ![Sunflower](/great_gatsbys/IMG_0670.JPG)
