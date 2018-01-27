@@ -14,7 +14,7 @@ author_profile: true
 >Nothing Gold Can Stay
 >November 23, 2017
 
-![Eye](/great_gatsbys/IMG_1078.jpg)
+![Eye](/great_gatsbys/IMG_1078.JPG)
 >Eye of the Storm
 >November January 17, 2017
 
