@@ -5,4 +5,4 @@ title: PHOTOS
 author_profile: true
 ---
 ## AJA&D Photography
-![Sunflower](/IMG_0670.JPG)
+![Sunflower](/great_gatsbys/IMG_0670.JPG)
