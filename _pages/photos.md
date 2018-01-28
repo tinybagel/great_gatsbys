@@ -2,7 +2,6 @@
 layout: single
 permalink: /about/
 title: PHOTOS
-author_profile: true
 ---
 ## AJA&D Photography
 ![rose](/great_gatsbys/And The Roses Were Humbled.JPG)
