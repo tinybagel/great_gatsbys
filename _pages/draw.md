@@ -26,4 +26,8 @@ Inspired by friends, fandoms, nature, and more.
 
 
 ![MULLIGAN](/great_gatsbys/7409614D-00EF-410D-8B2B-6F6A5840D9C9.jpeg)
-> Mulligan Emotion Board. Adobe Draw and Photoshop Fix. Inspired by none other than Mulligan himself. You git.
+> Mulligan Emotion Board. Adobe Draw and Photoshop Fix. Inspired by none other than Mulligan himself.
+
+
+![moi](/great_gatsbys/1C33229A-C2E1-4B55-B950-4BD6E1EA60DF.png)
+> Ace Jones Emotion Board. Adobe Draw. Self portraits. Looking good, me.
