@@ -22,8 +22,8 @@ Inspired by friends, fandoms, nature, and more.
 
 
 ![Princess](/great_gatsbys/6EDF4D46-D8BD-4096-B367-5688D5EEDB81.jpeg)
-> Untitled 1. Colored pencil and ink sketch transformed with Imaengine. Started as a doodle. Shoutout to my inspiration, M! Love you!
+> Untitled 1. Colored pencil and ink sketch transformed with Imaengine. Started as a doodle. Shoutout to my inspiration, Mags! Love you!
 
 
 ![MULLIGAN](/great_gatsbys/7409614D-00EF-410D-8B2B-6F6A5840D9C9.jpeg)
-> Mulligan Emotion Board. Adobe Draw and Photoshop Fix. Inspired by none other than Mulligan himself. 
+> Mulligan Emotion Board. Adobe Draw and Photoshop Fix. Inspired by none other than Mulligan himself. You git.
