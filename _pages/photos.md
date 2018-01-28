@@ -5,13 +5,13 @@ title: PHOTOS
 author_profile: true
 ---
 ## AJA&D Photography
-![shoes](/great_gatsbys/Take Your Mark.jpg)
->Take Your Mark.
->May 2, 2017
-
 ![rose](/great_gatsbys/And The Roses Were Humbled.JPG)
 >And The Roses Were Humbled.
 >March 26, 2017
+
+![shoes](/great_gatsbys/Take Your Mark.jpg)
+>Take Your Mark.
+>May 2, 2017
 
 
 ![Sunflower](/great_gatsbys/IMG_0670.JPG)
