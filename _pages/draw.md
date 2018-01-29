@@ -23,3 +23,7 @@ Drawn or transferred to my tablet, all of this art is done digitally using a hos
 
 ![moi](/great_gatsbys/1C33229A-C2E1-4B55-B950-4BD6E1EA60DF.png)
 > Ace Jones Emotion Board. Adobe Draw. Self portraits. Looking good, me.
+
+
+![snek](/great_gatsbys/7B388108-B8F4-4156-9917-7C75673DD50C.png)
+> Self-Portrait as a Pit Viper. Adobe draw and Adobe Sketch. Just a quick doodle.
