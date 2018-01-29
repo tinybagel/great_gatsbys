@@ -1,6 +1,6 @@
 ---
 layout: single
-permalink: /about/
+permalink: /photos/
 title: PHOTOS
 ---
 ## AJA&D Photography
