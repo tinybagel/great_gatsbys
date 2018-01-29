@@ -13,10 +13,6 @@ Inspired by friends, fandoms, nature, and more.
 > Crow Girl 1. Made using Adobe Capture, Adobe Draw, and Adobe Sketch. Eyes based on Ziksua's art style.
 
 
-![MEOW](/great_gatsbys/24D0D313-B8FC-4043-823B-91CDEC935F92.jpeg)
-> Severus. Colored pencil and ink cat on paper. Cardboard background, ink and metallic markers used for writing.
-
-
 ![HAMILTON](/great_gatsbys/53BAA414-A821-456B-AEF5-E35E8AD1B674.jpeg)
 > Do Not Throw Away Your Shot. Watercolour and ink on watercolour paper. Ham fans, unite!
 
