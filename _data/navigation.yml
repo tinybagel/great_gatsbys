@@ -1,5 +1,7 @@
 main:
   - title: "PHOTOS"
-    url: /about/
+    url: /photos/
+  - title: "DIGITAL ART"
+    url: /DA/
   - title: "DRAWINGS"
     url: /draw/
