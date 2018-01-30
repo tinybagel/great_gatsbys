@@ -10,3 +10,8 @@ Straight from my notebooks, be inspired by goofy drawings of mermaids, cutesy co
 https://photos.app.goo.gl/CKGKPN7SUZlki7Gl2
 
 >Dork1. Hand-drawn animation, using AnimationDesk. 26 frames. I'm currently working on cleaning it up, maybe adding more detail. Thanks to my muse and favorite dork(you know you are (; ) for being the inspiration!
+
+
+![mermaids](/great_gatsbys/IMG_0960.PNG)
+
+>Unfinished Mermaid Make-Out. Adobe draw and adobe sketch. thoguh of this and got really excited until i rmemebered i'm rubbish at skies and flowers XD
