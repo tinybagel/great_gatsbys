@@ -9,4 +9,4 @@ Straight from my notebooks, be inspired by goofy drawings of mermaids, cutesy co
 ![dork1](/great_gatsbys/E72845EE-7610-4067-8C36-FC2635572018.jpeg)
 https://photos.app.goo.gl/CKGKPN7SUZlki7Gl2
 
->Dork1. Hand-drawn animation, using AnimationDesk. 26 frames. I'm currently working on cleaning it up, maybe adding more detail. Thanks to my msue and favorite dork(you know you are) for being the inspiration!
+>Dork1. Hand-drawn animation, using AnimationDesk. 26 frames. I'm currently working on cleaning it up, maybe adding more detail. Thanks to my muse and favorite dork(you know you are (; ) for being the inspiration!
