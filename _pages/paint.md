@@ -1,7 +1,7 @@
 ---
 layout: single
 permalink: /paint/
-title: PAINTINGS AND MORE
+title: PAINTINGS
 ---
 ## AJA&D Paintings
 My more complete pieces, I do acrylic, oil, watercolour, and other assorted projects.
