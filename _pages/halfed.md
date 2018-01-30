@@ -9,4 +9,4 @@ Straight from my notebooks, be inspired by goofy drawings of mermaids, cutesy co
 ![ROBOCELOT](/great_gatsbys/E72845EE-7610-4067-8C36-FC2635572018.jpeg)
 https://photos.app.goo.gl/CKGKPN7SUZlki7Gl2
 
->Dork1. Hand-drawn animation, using AnimationDesk. 26 frames. I'm currently working on cleaning it up, maybe adding more deatil. Good practice for animatics in the future!
+>Dork1. Hand-drawn animation, using AnimationDesk. 26 frames. I'm currently working on cleaning it up, maybe adding more deatil. Good practice for animatics in the future! Currently working through some coding kinks, so copy the link under the picture and throw it into a browser to watch. I hope you enjoy!
