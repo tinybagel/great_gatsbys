@@ -14,4 +14,4 @@ https://photos.app.goo.gl/CKGKPN7SUZlki7Gl2
 
 ![mermaids](/great_gatsbys/IMG_0960.PNG)
 
->Unfinished Mermaid Make-Out. Adobe draw and adobe sketch. thoguh of this and got really excited until i rmemebered i'm rubbish at skies and flowers XD
+>Unfinished Carribean Kiss. Adobe draw and adobe sketch. Thought of this and got really excited until I remembered i'm rubbish at skies and flowers XD
