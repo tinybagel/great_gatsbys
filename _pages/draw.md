@@ -14,3 +14,6 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 
 ![Doctor](/great_gatsbys/IMG_1153.JPG) <!-- .element height="50%" width="50%" -->
 >Doctor Motiff. Colored Pencil and ink.
+
+![Lizard](/great_gatsbys/IMG_1151.JPG)
+>Lizard. Colored pencil. A really fun project, the point was to make both see-through & visible. I reccomend to other artists :)
