@@ -12,7 +12,7 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 ![Robocelot](/great_gatsbys/IMG_1163.JPG)
 >Robocelot. Original. Pencil and Ink. 
 
-![Cat](/great_gatsbys/_pages/IMG_0833.JPG) <!-- .element height="50%" width="50%" -->
+![Cat](/great_gatsbys/_pages/IMG_0833 (1).JPG) 
 >Severus. Colored pencil and ink on paper, words and writing done in ink and metallic markers on carboard.
 
 ![Princess](/great_gatsbys/IMG_1162.JPG)
@@ -21,7 +21,7 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 ![Doctor](/great_gatsbys/IMG_1153.JPG) <!-- .element height="50%" width="50%" -->
 >Doctor Motiff. Colored Pencil and ink.
 
-![Deer](/great_gatsbys/_pages/IMG_0834.JPG) <!-- .element height="50%" width="50%" -->
+![Deer](/great_gatsbys/_pages/IMG_0834 (1).JPG) 
 >White-tail deer. Metallic markers and ink on a carboard page.
 
 ![Wolf](/great_gatsbys/IMG_1150 (2).JPG)
