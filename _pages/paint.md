@@ -12,3 +12,6 @@ My more complete pieces, I do acrylic, oil, watercolour, and other assorted proj
 
 ![Crow Girl2](/great_gatsbys/IMG_1159.JPG)
 >Crow Girl 2. Watercolour paints, watercolour pencils, and ink. 
+
+![Hamilton](/great_gatsbys/53BAA414-A821-456B-AEF5-E35E8AD1B674.jpeg)
+>Do Not Throw Away Your Shot. Watercolour and ink. I love you, Lin-Manuel Miranda. God bless.
