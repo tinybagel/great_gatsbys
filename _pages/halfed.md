@@ -8,10 +8,12 @@ Straight from my notebooks, be inspired by goofy drawings of mermaids, cutesy co
 
 ![dork1](/great_gatsbys/E72845EE-7610-4067-8C36-FC2635572018.jpeg)
 https://photos.app.goo.gl/CKGKPN7SUZlki7Gl2
-
 >Dork1. Hand-drawn animation, using AnimationDesk. 26 frames. I'm currently working on cleaning it up, maybe adding more detail. Thanks to my muse and favorite dork(you know you are (; ) for being the inspiration!
 
 
 ![mermaids](/great_gatsbys/IMG_0960.PNG)
-
 >Unfinished Carribean Kiss. Adobe draw and adobe sketch. Thought of this and got really excited until I remembered i'm rubbish at skies and flowers XD
+
+
+![PopArt](/great_gatsbys/_pages/IMG_0533.JPG)
+>Unfinished Pop-art. Pencil. Inspired by Roy Lichenstein's work. 
