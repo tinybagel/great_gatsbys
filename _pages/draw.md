@@ -12,14 +12,23 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 ![Robocelot](/great_gatsbys/IMG_1163.JPG)
 >Robocelot. Original. Pencil and Ink. 
 
+![Cat](/great_gatsbys/_pages/IMG_0833.JPG) <!-- .element height="50%" width="50%" -->
+>Severus. Colored pencil and ink on paper, words and writing done in ink and metallic markers on carboard.
+
 ![Princess](/great_gatsbys/IMG_1162.JPG)
 >Not sure if it counts as a doodle or drawing... whatever it is, it's clored pencil, metallic marker, and ink.
 
 ![Doctor](/great_gatsbys/IMG_1153.JPG) <!-- .element height="50%" width="50%" -->
 >Doctor Motiff. Colored Pencil and ink.
 
+![Deer](/great_gatsbys/_pages/IMG_0834.JPG) <!-- .element height="50%" width="50%" -->
+>White-tail deer. Metallic markers and ink on a carboard page.
+
 ![Wolf](/great_gatsbys/IMG_1150 (2).JPG)
 >Wolf. Marker. Not my finest piece- what the heck with dog muzzles i don't understand- but i really like the colours :)
 
 ![Majora's Mask](/great_gatsbys/IMG_1149 (2).JPG)
 >Majora's Mask. Colored pencil and ink. Based on Majora's Mask from Legend of Zelda, i added Zentangle elements.
+
+![Owl](/great_gatsbys/_pages/IMG_0836.JPG) <!-- .element height="50%" width="50%" -->
+>Heart and Home. Metallic Markers and ink on a carboard page.
