@@ -19,7 +19,7 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 >Doctor Motiff. Colored Pencil and ink.
 
 ![Wolf](/great_gatsbys/IMG_1150 (2).JPG)
->Wolf. MArker. Not my finest piece- what the heck with dog muzzles i don't understand- but i realy like the colours :)
+>Wolf. Marker. Not my finest piece- what the heck with dog muzzles i don't understand- but i realy like the colours :)
 
 ![Majora's Mask](/great_gatsbys/IMG_1149 (2).JPG)
->Majora's mask. Colored pencil and ink. Based on majora's mask from Legend of Zelda, i added Zentangle elements.
+>Majora's Mask. Colored pencil and ink. Based on Majora's Mask from Legend of Zelda, i added Zentangle elements.
