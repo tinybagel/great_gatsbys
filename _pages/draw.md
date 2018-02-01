@@ -2,6 +2,11 @@
 layout: single
 permalink: /draw/
 title: DRAWINGS
+img[great_gatsbys/IMG_1153.JPG] {
+  width: 70%;
+  border: none;
+  background: none;
+}
 ---
 ## AJA&D Hand-Drawn Art
 Drawn by hand, a few made in my art class, but a lot are just fun sketches and doodles. Drawings may be done in ink, pencil, or both.
@@ -11,3 +16,5 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 
 ![Princess](/great_gatsbys/IMG_1162.JPG)
 >Not sure if it counts as a doodle or drawing... whatever it is, it's clored pencil, metallic marker, and ink.
+
+![Doctor](/great_gatsbys/IMG_1153.JPG)
