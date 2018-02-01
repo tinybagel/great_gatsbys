@@ -8,4 +8,7 @@ My more complete pieces, I do acrylic, oil, watercolour, and other assorted proj
 
 ![Bastille](/great_gatsbys/D56EE5EB-3460-4489-B2FF-D5F2CFA1D16A.jpeg)
 
->Wild World. Acrylic on Canvas. A nod to BAstille's album
+>Wild World. Acrylic on Canvas. A nod to Bastille's album
+
+![Crow Girl2](/great_gatsbys/IMG_1159.JPG)
+>Crow Girl 2. Watercolour paints, watercolour pencils, and ink. 
