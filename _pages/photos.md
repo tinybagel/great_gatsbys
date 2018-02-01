@@ -24,10 +24,13 @@ title: PHOTOS
 
 ![Eye](/great_gatsbys/IMG_1078.JPG)
 >Eye of the Storm.
->November January 17, 2018
+>January 17, 2018
 
 
 ![Lichen](/great_gatsbys/IMG_1082.JPG)
 >Growth.
->November January 17, 2018
+>January 17, 2018
 
+![Mouse](/great_gatsbys/Thing.JPG)
+>Eldrich.
+>January 22, 2018
