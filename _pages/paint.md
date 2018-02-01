@@ -15,3 +15,6 @@ My more complete pieces, I do acrylic, oil, watercolour, and other assorted proj
 
 ![Hamilton](/great_gatsbys/53BAA414-A821-456B-AEF5-E35E8AD1B674.jpeg)
 >Do Not Throw Away Your Shot. Watercolour and ink. I love you, Lin-Manuel Miranda. God bless.
+
+![Luna moth](/great_gatsbys/_pages/IMG_0835.JPG) <!-- .element height="50%" width="50%" -->
+>Luna Moth. Watercoulour on watercolour paper. Wriitng done in metallic amrkers on cardboard page.
