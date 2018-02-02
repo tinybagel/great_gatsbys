@@ -31,7 +31,7 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 >Majora's Mask. Colored pencil and ink. Based on Majora's Mask from Legend of Zelda, i added Zentangle elements.
 
 ![ABAP](/great_gatsbys/_pages/IMG_1180.JPG)
->American Beauty. Blue pen. Based on Fall Out Boy's album, but especially the song The Kids Aren't Alright.
+>American Beauty. Blue pen. Based on the songs and album cover of Fall Out Boy's album American Beauty/American Pyscho, The Kids Aren't alright, in particular.
 
 ![Owl](/great_gatsbys/_pages/IMG_0836 (1).JPG) 
 >Heart and Home. Metallic Markers and ink on a carboard page.
