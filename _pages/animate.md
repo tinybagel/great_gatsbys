@@ -8,4 +8,4 @@ Though there isn't a lot here now, hopefully there will be some day! I've been w
 
 ![dude](/great_gatsbys/_pages/Dude doodle.png)
 >Quick animation, about 50ish frames. Potato-sack animation is really good practice for beginning animators, 10/10.
->Copy this link and put in your browser: https://photos.app.goo.gl/v8H0Xi6nx9MvW0CC2
+Copy this link and put in your browser: https://photos.app.goo.gl/v8H0Xi6nx9MvW0CC2
