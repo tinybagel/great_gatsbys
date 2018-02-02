@@ -35,3 +35,6 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 
 ![Owl](/great_gatsbys/_pages/IMG_0836 (1).JPG) 
 >Heart and Home. Metallic Markers and ink on a carboard page.
+
+![Love](/great_gatsbys/_pages/IMG_1179.JPG)
+>Photograph. Pencil.
