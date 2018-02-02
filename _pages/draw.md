@@ -30,5 +30,5 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 ![Majora's Mask](/great_gatsbys/IMG_1149 (2).JPG)
 >Majora's Mask. Colored pencil and ink. Based on Majora's Mask from Legend of Zelda, i added Zentangle elements.
 
-![Owl](great_gatsbys/_pages/IMG_0836 (1).JPG) 
+![Owl](/great_gatsbys/_pages/IMG_0836 (1).JPG) 
 >Heart and Home. Metallic Markers and ink on a carboard page.
