@@ -6,6 +6,9 @@ title: PAINTINGS
 ## AJA&D Paintings
 My more complete pieces, I do acrylic, oil, watercolour, and other assorted projects.
 
+![WDMN](/great_gatsbys/_pages/IMG_1172.JPG)
+>When The Day Met The Night. Acrylic paint on paper. One of my favorite pieces and a nod to Panic! At The Disco's song. Thanks to my dork for being a very good reference for drawing and such :) you helepd me make one of my favorites so, high five XD
+
 ![Bastille](/great_gatsbys/D56EE5EB-3460-4489-B2FF-D5F2CFA1D16A.jpeg)
 
 >Wild World. Acrylic on Canvas. A nod to Bastille's album
