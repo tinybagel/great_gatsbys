@@ -13,6 +13,9 @@ Straight from my notebooks, be inspired by goofy drawings of mermaids, cutesy co
 ![cityscape](/great_gatsbys/_pages/IMG_1176.JPG)
 >Cityscape doodle, blue pen.
 
+![PopArt](/great_gatsbys/_pages/IMG_0533.JPG)
+>Unfinished Pop-art. Pencil. Inspired by Roy Lichenstein's work.
+
 ![mermaid](/great_gatsbys/_pages/IMG_1178.JPG)
 >Mermaid doodle, blue pen. 
 
@@ -21,9 +24,6 @@ Straight from my notebooks, be inspired by goofy drawings of mermaids, cutesy co
 
 ![Eliza](/great_gatsbys/_pages/IMG_1177.JPG)
 >Late 18th Century Dress doodle, pencil. Don't judge me. I like Hamilton, okay?
-
-![PopArt](/great_gatsbys/_pages/IMG_0533.JPG)
->Unfinished Pop-art. Pencil. Inspired by Roy Lichenstein's work. 
 
 ![Doodle](/great_gatsbys/_pages/IMG_1182 (1).JPG)
 >Sketches. Pencil. Ropes, couches, bags... you never know when such drawings may come in handy.
