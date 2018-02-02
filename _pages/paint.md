@@ -19,7 +19,7 @@ My more complete pieces, I do acrylic, oil, watercolour, and other assorted proj
 >Do Not Throw Away Your Shot. Watercolour and ink. I love you, Lin-Manuel Miranda. God bless.
 
 ![Luna moth](/great_gatsbys/_pages/IMG_0835 (1).JPG) 
->Luna Moth. Watercoulour on watercolour paper. Writing done in metallic amrkers on cardboard page.
+>Luna Moth. Watercoulour on watercolour paper. Writing done in metallic markers on cardboard page.
 
 ![Rose](/great_gatsbys/_pages/IMG_1183 (1).JPG)
 >And The Roses Were Humbled. Tempera paint, in shades and tints of the pink(Yes! Even the really dark or light colors are a variation of the starter shade of pink!). Based on The Little Prince.
