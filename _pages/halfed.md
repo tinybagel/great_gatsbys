@@ -24,3 +24,6 @@ Straight from my notebooks, be inspired by goofy drawings of mermaids, cutesy co
 
 ![PopArt](/great_gatsbys/_pages/IMG_0533.JPG)
 >Unfinished Pop-art. Pencil. Inspired by Roy Lichenstein's work. 
+
+![Doodle](/great_gatsbys/_pages/IMG_1182 (1).JPG)
+>Sketches. Pencil. Ropes, couches, bags... you never know when such drawings may come in handy.
