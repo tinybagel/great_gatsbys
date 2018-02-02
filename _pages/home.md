@@ -10,4 +10,4 @@ ______________________________________
 All shoutouts have abbreviated or changed names for privacy protection.
 All art is licensed under Ace Jones.
 
-![ace](/great_gatsbys/IMG_0597.PNG)
+![ace](/great_gatsbys/_pages/1525EE84-AA8E-49F7-8C5F-4B4DB2BF488B.png)
