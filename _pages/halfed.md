@@ -7,7 +7,9 @@ title: DOODLES AND WORK IN PROGRESS
 Straight from my notebooks, be inspired by goofy drawings of mermaids, cutesy couples, or doggos! I also have unfinished projects on here; they may be later categorized in other areas on the site when finished. This part of the site will constantly be re-invented, so be sure to save your favorites... or not. You do you, boo. 
 
 
-![dork1](/great_gatsbys/_pages/672379AD-50C9-4CA8-8287-DC5D8E78984F.gif)
+
+
+![dork1](/great_gatsbys/_pages/C65827F4-39AD-4157-AB87-00AE7952FF5A.gif)
 >Dork1. Hand-drawn animation, using AnimationDesk. 26 frames. I'm currently working on cleaning it up, maybe adding more detail. Thanks to my muse and favorite dork(you know you are (; ) for being the inspiration!
 
 ![cityscape](/great_gatsbys/_pages/IMG_1176.JPG)
