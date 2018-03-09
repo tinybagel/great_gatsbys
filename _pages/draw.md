@@ -13,10 +13,10 @@ Drawn by hand, a few made in my art class, but a lot are just fun sketches and d
 >Robocelot. Original. Pencil and Ink. 
 
 ![Cat](/great_gatsbys/_pages/IMG_0833 (1).JPG) 
->Severus. Colored pencil and ink on paper, words and writing done in ink and metallic markers on carboard.
+>Severus. Colored pencil and ink on paper, words and writing done in ink and metallic markers on cardboard.
 
 ![Princess](/great_gatsbys/IMG_1162.JPG)
->Not sure if it counts as a doodle or drawing... whatever it is, it's clored pencil, metallic marker, and ink.
+>Not sure if it counts as a doodle or drawing... whatever it is, it's colored pencil, metallic marker, and ink.
 
 ![Doctor](/great_gatsbys/IMG_1153.JPG) <!-- .element height="50%" width="50%" -->
 >Doctor Motiff. Colored Pencil and ink.
