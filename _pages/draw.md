@@ -6,6 +6,9 @@ title: DRAWINGS
 ## AJA&D Hand-Drawn Art
 Drawn by hand, a few made in my art class, but a lot are just fun sketches and doodles. Drawings may be done in ink, pencil, or both.
 
+![emotion](great_gatsbys/_pages/6AB1426E-9338-44A2-832C-7D1A742C5E71.jpeg)
+>Faces. Pencil, ink, colored pencil, crayon, sharpie. Slightly altered versions of Dork(don't mind your alias (; ), Mulligan, N.S., and myself.
+
 ![Lizard](/great_gatsbys/IMG_1151.JPG)
 >Lizard. Colored pencil. A really fun project, the point was to make both see-through & visible. I reccomend to other artists :)
 
