@@ -9,6 +9,12 @@ Drawn or transferred to my tablet, all of this art is done digitally using a hos
 ![ROBOCELOT](/great_gatsbys/0E93E6E7-BCC4-4C4E-8951-3F699D8B32F6.jpeg)
 > Robocelot. Made using Adobe Capture and Adobe Draw. Yes, the smoke is a TAIL.
 
+![eye](great_gatsbys/_pages/5F77467D-E97A-4653-9FF3-75C0FE7F31C1.jpeg)
+Eye: Nebula. Adobe Sketch.
+
+![shadowchild](great_gatsbys/_pages/6291F344-BC61-42F2-B1F9-6D9EEABB0D3D.jpeg)
+Shadowchildren Concept art. Adobe Draw and Adobe Sketch. To be fair, it is a work in progeress- i may take away the shading and definition on the face.
+
 ![crow](/great_gatsbys/1A894163-FF09-4730-A596-E0CAF54BE56F.png)
 > Crow Girl 1. Made using Adobe Capture, Adobe Draw, and Adobe Sketch. Eyes based on Ziksua's art style.
 
